@@ -4,7 +4,7 @@
 
 aside from motosport, im also into some other fandoms and music
 
-trying very to survive ib rn.
+trying very hard to survive ib rn.
 
 in bio i have 3 fav drivers but honestly i love them all so pls int, im as sweet as grandma's cookie fr
 
