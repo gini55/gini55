@@ -4,6 +4,8 @@
 
 aside from motosport, im also into some other fandoms and music
 
+trying very to survive ib rn.
+
 pls int, im as sweet as grandma's cookie fr
 
 
