@@ -5,8 +5,8 @@
 
 aside from motosport, i love music and is also into some other fandoms
 
-trying very hard to survive ib rn.  hopeless dream of wanting to become a f1 car mechanic or designer in the future💔
+trying very hard to survive ib rn.  hopeless dream of wanting to become a f1 car mechanic or designer in the future
 
 i love all drivers so pls int, im as sweet as grandma's cookie fr
 
-
+js started git so everything is chop ik💔 will redo after finals of doom and despair is over
