@@ -7,6 +7,6 @@ aside from motosport, im also into some other fandoms and music
 
 trying very hard to survive ib rn.  hopeless dream of wanting to become a f1 car mechanic or designer in the future💔
 
-in bio i have 3 fav drivers but honestly i love them all so pls int, im as sweet as grandma's cookie fr
+i love all drivers so pls int, im as sweet as grandma's cookie fr
 
 
