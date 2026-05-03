@@ -4,6 +4,6 @@
 
 aside from motosport, im also into some other fandoms and music
 
-hopeless dream of wanting to become a f1 car mechanic or designer in the future
+
 
 
