@@ -2,9 +2,10 @@
 
 ![image alt](https://github.com/gini55/gini55/blob/455ac3ba513847e77f37cfd3447e43e84ce8fb91/cmiygl.jpg)
 
+
 aside from motosport, im also into some other fandoms and music
 
-trying very hard to survive ib rn.
+trying very hard to survive ib rn.  hopeless dream of wanting to become a f1 car mechanic or designer in the future💔
 
 in bio i have 3 fav drivers but honestly i love them all so pls int, im as sweet as grandma's cookie fr
 
