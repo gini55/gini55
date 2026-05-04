@@ -3,10 +3,9 @@
 ![image alt](https://github.com/gini55/gini55/blob/455ac3ba513847e77f37cfd3447e43e84ce8fb91/cmiygl.jpg)
 
 
-aside from motosport, i love music
 
 trying very hard to survive ib rn.  hopeless dream of wanting to become a f1 car mechanic or designer in the future
 
 i love all drivers so pls int, im as sweet as grandma's cookie fr
 
-js started git so everything is chop ik💔 will redo after finals of doom and despair is over
+redoing page after finals of doom and despair is over
