@@ -22,7 +22,7 @@ hopeless dream of wanting to become a f1 car mechanic or designer in the future
 <p align="center">
 i love to small talk & make new friends SO pls int & c+h enc !!!
 
-<img src="https://github.com/gini55/gini55/blob/7685fff7ba2402e8870db356bcdd92afcb98fa0e/carcar.jpg" width="800">
+<img src="https://github.com/gini55/gini55/blob/7685fff7ba2402e8870db356bcdd92afcb98fa0e/carcar.jpg" width="700">
 <p align="center">
 i love carcar so muchy 55:81
 
