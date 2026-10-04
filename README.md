@@ -14,11 +14,11 @@
 <p align="center">
 trying very hard to survive IB rn
 <p align="center">
-hopeless dream of wanting to become a f1 car mechanic or designer in the future
-<p align="center">
-<img src="https://github.com/gini55/gini55/blob/a9fbfc6c2015c4c0849e39806052b4b2e28a4416/malcom%20t.jpg" width="85">
-<img src="https://github.com/gini55/gini55/blob/7685fff7ba2402e8870db356bcdd92afcb98fa0e/chud.jpg" width="85">
+<img src="https://github.com/gini55/gini55/blob/7ce36ba96edb299ba2c2d2ededd87a568032890a/live%20reaction.jpg" width="85">
+<img src="https://github.com/gini55/gini55/blob/a3214e3ac667eabc616a1fae02df3425c2fcee8d/me.jpg" width="90">
 <img src="https://github.com/gini55/gini55/blob/f4483f1046eef8b611cc5152fdd1d1e67d28ece7/bernese.jpg" width="85">
+<p align="center">
+hopeless dream of wanting to become a f1 car mechanic or designer in the future
 <p align="center">
 i love to small talk & make new friends SO pls int & c+h enc !!!
 
