@@ -45,3 +45,7 @@ type splish :P
 <img src="https://github.com/gini55/gini55/blob/6060cb91b542bb01279e14ba414aafe321cf6424/colle%20dropout.jpg" width="100">
 <img src="https://github.com/gini55/gini55/blob/f4483f1046eef8b611cc5152fdd1d1e67d28ece7/never%20enough.jpg" width="100">
 <img src="https://github.com/gini55/gini55/blob/79926111948b50746704ce1dea3b0be2e5791459/astroworld.jpg" width="100">
+
+<p align="center">
+ <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31ze4rpbjm5h3rkhapzinkc74k7a&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false">
